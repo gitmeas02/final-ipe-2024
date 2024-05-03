@@ -1,1 +1,4 @@
 # final-ipe-2024
+SEAN RAKSMEY
+E20210686
+GIC-I3-C
